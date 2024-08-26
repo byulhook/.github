@@ -1,1 +1,2 @@
-![Group 20](https://github.com/user-attachments/assets/6798a536-2180-46b5-b37c-7d920f2be2b2)
+
+![Group 20](https://github.com/user-attachments/assets/141819cc-a2f3-49c6-b0ad-1b486388411c)
